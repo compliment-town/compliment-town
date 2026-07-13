@@ -22,3 +22,6 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/clownfoe">@clownfoe<a/>: We have a specific anonymous note for you and it reads these following words. "hai clownfoe, youve been very nice to everyone around you for months, your style is so kyuute too, keep being yourself ^_^"
+<br>
+<br>
+<a href="https://github.com/CONEXlONN">@CONEXlONN<a/>: Your adorable style is pleasing to look at, we were also told you are very funny and on top of that we personally think you are well known! You've got it all, keep being awesome for us all!
