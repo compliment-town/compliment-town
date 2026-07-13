@@ -7,3 +7,12 @@ Everypony deserves to be shown love, this was created to be kind to everyone, kn
 You are loved by us! You matter! You are doing your best! You got this! Your smile makes us smile too! You are amazing!
 ***
 Compliment someone or yourself on our linked <a href="https://compliment.straw.page/">strawpage<a/> while we go around finding people to add ourselves! Tell them their ponies are cute, that you like their github, that you like sitting with them, that you are glad to see them online, that you really admire them! Spread as much love as possible!
+<br>
+<br>
+<a href="https://github.com/deepaffection">@deepaffection<a/>: You must already know how much of an impact you've made on our community, we all thank you for your tutorials and willingness to share your creativity!
+<br>
+<br>
+<a href="https://github.com/tirgery123">@tirgery123<a/>: What a peculiar individual, you are very friendly and also made quite the impact on people with your little oc, almost everyone knows you and that is really admirable and funny!
+<br>
+<br>
+<a href="https://github.com/rainestorms">@rainestorms<a/>: A little birdie told us you have very cute ponies and we all think the same! Keep creating and show off your amazing talent to the fullest!
