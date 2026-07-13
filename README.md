@@ -4,5 +4,5 @@
 Everypony deserves to be shown love, this was created to be kind to everyone, known or not. We are not influenced by anyone and anything, justice is not the only abstract thing that's blind, kindness is too. Anyone can be added, so long they are not truly problematic themselves, and even then we hope you lot to heal and change the trajectory of your life for the better.
 <br>
 <br>
-You are loved by us! You matter! You are doing your best! You got this! Your smile makes us smile too!
+You are loved by us! You matter! You are doing your best! You got this! Your smile makes us smile too! You are amazing! You are beautiful!
 ***
