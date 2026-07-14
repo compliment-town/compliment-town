@@ -6,7 +6,7 @@ Everypony deserves to be shown love, this was created to be kind to everyone, kn
 <br>
 You are loved by us! You matter! You are doing your best! You got this! Your smile makes us smile too! You are amazing!
 ***
-Compliment someone or yourself on our linked <a href="https://compliment.straw.page/">strawpage<a/> while we go around finding people to add ourselves! Tell them their ponies are cute, that you like their github, that you like sitting with them, that you are glad to see them online, that you really admire them! Spread as much love as possible!
+Compliment someone or yourself on our linked <a href="https://compliment.straw.page/">strawpage<a/> or <a href="https://compliment.atabook.org/">atabook<a/> while we go around finding people to add ourselves! Tell them their ponies are cute, that you like their github, that you like sitting with them, that you are glad to see them online, that you really admire them! Spread as much love as possible!
 <br>
 <br>
 <a href="https://github.com/deepaffection">@deepaffection<a/>: You must already know how much of an impact you've made on our community, we all thank you for your tutorials and willingness to share your creativity!
