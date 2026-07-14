@@ -18,7 +18,7 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <a href="https://github.com/rainestorms">@rainestorms<a/>: A little birdie told us you have very cute ponies and we all think the same! Keep creating and show off your amazing talent to the fullest!
 <br>
 <br>
-<a href="https://github.com/CannibalsHunger">@CannibalsHunger<a/>: You have very pretty and cute ponies, talent fell into the right hands and you never disappoint to impress us all! Keep it up!
+<a href="https://github.com/CannibalsHunger">@CannibalsHunger<a/>: You have very pretty and cute ponies, talent fell into the right hands and you never disappoint to impress us all! Keep it up for us!
 <br>
 <br>
 <a href="https://github.com/clownfoe">@clownfoe<a/>: We have a specific anonymous note for you and it reads these following words. "hai clownfoe, youve been very nice to everyone around you for months, your style is so kyuute too, keep being yourself ^_^"
