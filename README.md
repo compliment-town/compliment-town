@@ -25,3 +25,12 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/CONEXlONN">@CONEXlONN<a/>: Your adorable style is pleasing to look at, we were also told you are very funny and on top of that we personally think you are well known! You've got it all, keep being awesome for us all!
+<br>
+<br>
+<a href="https://github.com/yvoisen">@yvoisen<a/>: You are a true sweetheart who is great to be around and are always there for everyone else with pretty ponies and stunning site decorating skills on top of it all, we and everyone around you appreciate you so much!
+<br>
+<br>
+<a href="https://github.com/minecraftmaxxing">@minecraftmaxxing<a/>: We have a note for you coming from your dear friend ren! It reads these following words. "You're one of my best friends and you're such an awesome artist and friend to b around; I love the way you draw and overall love your humor :-)."
+<br>
+<br>
+<a href="https://github.com/faelightgex">@faelightgex<a/>: The prettiest illuga to ever walk on these pony grounds! Your ponies are gorgeous and colorful, we believe they are quite pleasing to look at!
