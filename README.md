@@ -46,3 +46,6 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/H3venly">@H3venly<a/>: Oh we get why your github username is that! It's because your skins are heavenly, isn't it? In all seriousness, we really mean it! Your shading is done so well, keep blessing us with ponies that look like heaven. Last pun, we promise!
+<br>
+<br>
+<a href="https://github.com/tillcest">@tillcest<a/>: We received an anonymous note for you and it reads these following words. "hi eden from this hit musical project alien stage ^-^ you ‘re loved and important PLS bless us with more gorgeous ponies and drawings, ok!?"
