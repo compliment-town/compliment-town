@@ -61,3 +61,12 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/kingofalejandro">@kingofalejandro<a/>: We have a note for you coming from crush and it reads these following words. "you are an awesome guy and your skins have always been stunning and creative. you have great humor and youre so fun to be around, love you bro /p"
+<br>
+<br>
+<a href="https://github.com/fawnshaveworms">@fawnshaveworms<a/>: What warm and pretty colours! Your ponies are gorgeous and so very nice to look at, they look so cozy and welcoming, we assume that matches your personality as well! Keep being cool!
+<br>
+<br>
+<a href="https://github.com/Fufuyio1206">@Fufuyio1206<a/>: You are so very creative! You aren't scared to experiment with grass codes to make exactly the accessory that you need and we think that's amazing, you are so good at this! Not to mention that your github page is so pretty as well!
+<br>
+<br>
+<a href="https://github.com/heartgoIden">@heartgoIden<a/>: A single glance at your pony had us mesmerized by such beautiful colouring! You pick your colours very well and overall look like such a sweetheart, you've got it all!
