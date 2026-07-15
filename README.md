@@ -54,7 +54,7 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <a href="https://github.com/KALININGRAD-OBLAST">@KALININGRAD-OBLAST<a/>: We were told someone's always online, the docks remember your hooves all around! And we want to add that your shading is absolute adorable and unique! Show off your talent to the fullest and keep being amazing!
 <br>
 <br>
-<a href="https://github.com/Jellycatss">@Jellycatss<a/>, <a href="https://github.com/PHAlNAXA">@PHAlNAXA<a/>, <a href="https://github.com/dqno">@dqno<a/>: We have a note for all three of you! It reads these following words. "I love you guys so much, it brings me much joy and motivation to go online to hangout with you guys, there's never a dull moment. Forever my favs."
+<a href="https://github.com/jellykatss">@jellykatss<a/>, <a href="https://github.com/PHAlNAXA">@PHAlNAXA<a/>, <a href="https://github.com/dqno">@dqno<a/>: We have a note for all three of you! It reads these following words. "I love you guys so much, it brings me much joy and motivation to go online to hangout with you guys, there's never a dull moment. Forever my favs."
 <br>
 <br>
 <a href="https://github.com/venzqs">@venzqs<a/>: You are absolutely the sweetest with adorable skins to match this quality of yours! Your presence and comfort is very appreciated, thank you for always being there for people when they need it! Our requester loves you!
