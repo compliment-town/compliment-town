@@ -58,3 +58,6 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/venzqs">@venzqs<a/>: You are absolutely the sweetest with adorable skins to match this quality of yours! Your presence and comfort is very appreciated, thank you for always being there for people when they need it! Our requester loves you!
+<br>
+<br>
+<a href="https://github.com/kingofalejandro">@kingofalejandro<a/>: We have a note for you coming from crush and it reads these following words. "you are an awesome guy and your skins have always been stunning and creative. you have great humor and youre so fun to be around, love you bro /p"
