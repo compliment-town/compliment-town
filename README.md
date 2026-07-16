@@ -70,3 +70,27 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/heartgoIden">@heartgoIden<a/>: A single glance at your pony had us mesmerized by such beautiful colouring! You pick your colours very well and overall look like such a sweetheart, you've got it all!
+<br>
+<br>
+<a href="https://github.com/avenueq">@avenueq<a/>: We assume this note is for you coming from dino, kat and winnie! It reads these following words. "DON'T THINK WE'D FORGET YOU TOO! we all love hanging out with you too aven, you bring the sparkle to our little pony party! WE LOVE YOU AVENPOO!!!"
+<br>
+<br>
+<a href="https://github.com/raayz">@raayz<a/>: You are so very amazing at making your ponies! Starting from scratch is not a challenge for you and having such talent is wonderful, keep creating and show us even more gorgeous skins!
+<br>
+<br>
+<a href="https://github.com/housepanther">@housepanther<a/>: We have an anonymous note for you! It reads these following words. "You're one of the sweetest people I've ever met, despite what ever flaws you believe you have don't ever let them discourage you. If there was anyone I'd want to meet all over again on this silly pony game, it would be you a thousand times over." And we also want to add that your colouring is super interesting and pretty!
+<br>
+<br>
+<a href="https://github.com/piehiker">@piehiker<a/>: A little someone seems to think you are one of the best people on ponytown! We bet that it must be because of your stunning ponies! You never disappoint, your colours are picked out so well, it's amazing!
+<br>
+<br>
+<a href="https://github.com/The-One-Eyed-Owl">@The-One-Eyed-Owl<a/>: What adorable colours you have on your pony! We are such big fans of how you shade and especially tint your skins, you are so very talented! Keep it up!
+<br>
+<br>
+<a href="https://github.com/SHXTGVN">@SHXTGVN<a/>: Your ponies are just the cutest! We could eat them right up, the colours go together very well and we especially love the primary colour choices! You are so good at this!
+<br>
+<br>
+<a href="https://github.com/jaymiigee">@jaymiigee<a/>: Those are such wonderful looking colours! Your shading is so neat and we are mesmerized by how you work with different hues, it really makes your pony come together very nicely!
+<br>
+<br>
+<a href="https://github.com/cosmopilled">@cosmopilled<a/>: An adorable shading style that perfectly matches your very cutely decorated github profile! Your ponies are gorgeous and you are so talented, keep it up for us!
