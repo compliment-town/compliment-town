@@ -90,7 +90,7 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <a href="https://github.com/SHXTGVN">@SHXTGVN<a/>: Your ponies are just the cutest! We could eat them right up, the colours go together very well and we especially love the primary colour choices! You are so good at this!
 <br>
 <br>
-<a href="https://github.com/jaymiigee">@jaymiigee<a/>: Those are such wonderful looking colours! Your shading is so neat and we are mesmerized by how you work with different hues, it really makes your pony come together very nicely!
+<a href="https://github.com/loves-failure">@loves-failure<a/>: Those are such wonderful looking colours! Your shading is so neat and we are mesmerized by how you work with different hues, it really makes your pony come together very nicely!
 <br>
 <br>
 <a href="https://github.com/cosmopilled">@cosmopilled<a/>: An adorable shading style that perfectly matches your very cutely decorated github profile! Your ponies are gorgeous and you are so talented, keep it up for us!
