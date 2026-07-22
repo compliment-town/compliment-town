@@ -9,6 +9,9 @@ You are loved by us! You matter! You are doing your best! You got this! Your smi
 Compliment someone or yourself on our linked <a href="https://compliment.straw.page/">strawpage<a/> or <a href="https://compliment.atabook.org/">atabook<a/> while we go around finding people to add ourselves! Tell them their ponies are cute, that you like their github, that you like sitting with them, that you are glad to see them online, that you really admire them! Spread as much love as possible!
 <br>
 <br>
+(We are currently busy but all requests will soon be added once at least one owner has more time for this, do not fret if yours isn't here yet!)
+<br>
+<br>
 <a href="https://github.com/deepaffection">@deepaffection<a/>: You must already know how much of an impact you've made on our community, we all thank you for your tutorials and willingness to share your creativity!
 <br>
 <br>
@@ -94,3 +97,18 @@ Compliment someone or yourself on our linked <a href="https://compliment.straw.p
 <br>
 <br>
 <a href="https://github.com/cosmopilled">@cosmopilled<a/>: An adorable shading style that perfectly matches your very cutely decorated github profile! Your ponies are gorgeous and you are so talented, keep it up for us!
+<br>
+<br>
+<a href="https://github.com/purestangel">@purestangel<a/>: We received a note for you and it reads these following words. "haiii nova js wanna say ur one of my favs online ,, ur funny , talented , and extremely fun + nice to be around when we hang out !! i fr gotta reach out more often bcus ur real awesome dude . keep being #cool"
+<br>
+<br>
+<a href="https://github.com/generixal">@generixal<a/>: We have an anonymous note here for you and it reads these following words. "HELLO TO THE SWEETEST PERSON IVE EVER MET!!! You always make my day a dozen times better, you're funny silly and absolutely AWESOME to be with!! Thank you for always being there for me lovely, lets hashtag duofarm FOREVERR!!!! bounded by soul (-:"
+<br>
+<br>
+<a href="https://github.com/yaasuhiro">@yaasuhiro<a/>: We have a note for you! It reads these following words. "you're genuinely SO sweet i love sitting and talking with you!! our convos are always so funny and cheer me up, and even when we don't talk and we just sit and cuddle, it still brightens my day knowing i have a friend like you. naka is genuinely one of the sweetest ppl ever!! your skins and rentries are absolutely GORGEOUS i love your style soso much especially your fuyuhiko and mondo skins. you're extremely talented, keep it up ^^!!"
+<br>
+<br>
+<a href="https://github.com/hardcoreduo">@hardcoreduo<a/>: We received an anonymous note for you and it reads these following words! "To one of the sweetest people around, thank you for being you!! Thank you for being kind to others despite all odds, and thank you for being the best company around. Sitting and just simply spending my time with you even without a word spoken means the world <3"
+<br>
+<br>
+<a href="https://github.com/vatrinyasin">@vatrinyasin<a/>: We have an anonymous note for you! It reads these following words. "youre really kind and fun to be around, im really happy that we are friends and that i hope we can continue to being friends for long with the gang, I LOVE U GOAT"
